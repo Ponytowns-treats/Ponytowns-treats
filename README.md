@@ -24,6 +24,8 @@
 [@a1p1yuri](https://github.com/a1p1yuri) is Ponytowns AndreW2002 from the collinlock16 continuity !
 
 [@SOUL-SHIELD](https://github.com/SOUL-SHIELD) is Ponytowns Phantasia from Toons Universe!
+
+[@stinkyrustyfork](https://github.com/stinkyrustyfork)  is Ponytowns Shrimpo from Dandys world!
 <br><p align="center"><img width="722" src="https://github.com/user-attachments/assets/1115d536-1bdf-4a2a-aabe-b8b03cfd2135" />
  # PTS SHIPS !
 Ponytowns Mooncookie / Decorativedreams from dandys world belongs to [@sp4ceb3rry](https://github.com/sp4ceb3rry) + [@sw33tsug4rcookie](https://github.com/sw33tsug4rcookie) !
