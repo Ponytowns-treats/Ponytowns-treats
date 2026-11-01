@@ -12,6 +12,8 @@
 [@sanguinesilence](https://github.com/sanguinesilence) is Ponytowns Blot from Dandys world!
 
 [@MrNovalite](https://github.com/MrNovalite) is Ponytowns Astro Novalite from Dandys world!
+
+[@Firepupp](https://github.com/firepupp) is Ponytowns Marshall from Paw Patrol!
 <br><p align="center"><img width="722" src="https://github.com/user-attachments/assets/1115d536-1bdf-4a2a-aabe-b8b03cfd2135" />
  # PTS SHIPS !
 <br><p align="center"><img width="722" src="https://github.com/user-attachments/assets/c32590cb-ecc3-4837-95d0-3024ff48ae2c" />
