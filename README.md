@@ -5,6 +5,8 @@
 <br><p align="center"> PTS PLATONIC ( insert duo/trio etc here) from (insert fandom) belongs to (user 1) , (user 2) + (user 3) ! These are for duos and trios, if you want to include your friendgroup, please give it a name !
 <br><p align="center"> ANY FURTHER REQUESTS FOR CATEGORIES MAY BE ADDED , BUT AS OF RIGHT NOW, THERE IS NOTHING CONFIRMED!!
 # If someone problematic is on here, reach out on the ata with proof. Pro/darks will NOT be added, so please dont even try to nominate yourself </3
+<br><p align="center"> <img width="200" height="200" alt="candy-lollipop" src="https://github.com/user-attachments/assets/11968b36-d9f1-47dd-8154-fdf235b6d3b9" />
+
 <br><p align="center"><img width="722"  src="https://github.com/user-attachments/assets/c86884e4-ab3d-4ea3-927a-157b454c2667" />
  # PTS CHARS !
 <br><p align="center"><img width="722" src="https://github.com/user-attachments/assets/1115d536-1bdf-4a2a-aabe-b8b03cfd2135" />
