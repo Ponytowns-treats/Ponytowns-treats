@@ -18,7 +18,7 @@
 [@sw33tsug4rcookie](https://github.com/sw33tsug4rcookie) is Ponytowns Ginger from Dandys world!
 <br><p align="center"><img width="722" src="https://github.com/user-attachments/assets/1115d536-1bdf-4a2a-aabe-b8b03cfd2135" />
  # PTS SHIPS !
-Ponytowns Mooncookie from dandys world belongs to [@sp4ceb3rry](https://github.com/sp4ceb3rry) + [@sw33tsug4rcookie](https://github.com/sw33tsug4rcookie) !
+Ponytowns Mooncookie / Decorativedreams from dandys world belongs to [@sp4ceb3rry](https://github.com/sp4ceb3rry) + [@sw33tsug4rcookie](https://github.com/sw33tsug4rcookie) !
 <br><p align="center"><img width="722" src="https://github.com/user-attachments/assets/c32590cb-ecc3-4837-95d0-3024ff48ae2c" />
  # PTS PLATONIC DUOS/TRIOS OR FRIENDGROUPS!
  THE SDWH GROUP - Nominated by [@MrNovalite](https://github.com/MrNovalite)
