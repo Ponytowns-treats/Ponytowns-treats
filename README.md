@@ -16,6 +16,10 @@
 [@Firepupp](https://github.com/firepupp) is Ponytowns Marshall from Paw Patrol!
 
 [@sw33tsug4rcookie](https://github.com/sw33tsug4rcookie) is Ponytowns Ginger from Dandys world!
+
+[@neverwanted2dance](https://github.com/neverwanted2dance) is Ponytowns Vee Version 1 from Dandys world!
+
+[@dicedrevival](https://github.com/dicedrevival) is Ponytowns Gourdy Holloway from Dandys world!
 <br><p align="center"><img width="722" src="https://github.com/user-attachments/assets/1115d536-1bdf-4a2a-aabe-b8b03cfd2135" />
  # PTS SHIPS !
 Ponytowns Mooncookie / Decorativedreams from dandys world belongs to [@sp4ceb3rry](https://github.com/sp4ceb3rry) + [@sw33tsug4rcookie](https://github.com/sw33tsug4rcookie) !
