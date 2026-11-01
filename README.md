@@ -26,9 +26,35 @@
 [@SOUL-SHIELD](https://github.com/SOUL-SHIELD) is Ponytowns Phantasia from Toons Universe!
 
 [@stinkyrustyfork](https://github.com/stinkyrustyfork)  is Ponytowns Shrimpo from Dandys world!
+
+[@Gacha-cutie](https://github.com/Gacha-cutie) is Ponytowns Gigi from Dandys world!
+
+[@Sproutkin](https://github.com/Sproutkin) Is Ponytowns  Sprout Seedly from Dandys world !
+
+[@Cupcakefetti](https://github.com/Cupcakefetti) is Ponytowns Cocoa the bunny from Dandys world !
+
+[@FISHTHESEAS](https://github.com/FISHTHESEAS) is Ponytowns Pebble Dancifer Jr from Dandys world!
+
+[@MeliodacStar](https://github.com/MeliodacStar) is Ponytowns Looey from Dandys world!
+
+[@reflectivedetective](https://github.com/reflectivedetective) is Ponytowns Glisten from Dandys world !
+
+[@Roy-Vanido](https://github.com/Roy-Vanido)is Ponytowns Roy from Spooky Month !
+
+[@ASTROSLAMENT](https://github.com/ASTROSLAMENT) is Ponytowns Delilah Keen from Dandys world !
+
+[@cobblebob](https://github.com/cobblebob) is Ponytowns foot soldier from PVZ !
+
+[@devanreedirl](https://github.com/devanreedirl) is Ponytowns Devan Reed from Dandys world !
+
+
 <br><p align="center"><img width="722" src="https://github.com/user-attachments/assets/1115d536-1bdf-4a2a-aabe-b8b03cfd2135" />
  # PTS SHIPS !
 Ponytowns Mooncookie / Decorativedreams from dandys world belongs to [@sp4ceb3rry](https://github.com/sp4ceb3rry) + [@sw33tsug4rcookie](https://github.com/sw33tsug4rcookie) !
 <br><p align="center"><img width="722" src="https://github.com/user-attachments/assets/c32590cb-ecc3-4837-95d0-3024ff48ae2c" />
  # PTS PLATONIC DUOS/TRIOS OR FRIENDGROUPS!
- THE SDWH GROUP - Nominated by [@MrNovalite](https://github.com/MrNovalite)
+ THE SDWH GROUP - Nominated by [@MrNovalite](https://github.com/MrNovalite) !
+
+ The Crossship trio - Nominated by [@Sproutkin](https://github.com/Sproutkin) !
+
+ Ponytowns Circus trio!( [@sanguinesilence](https://github.com/sanguinesilence) , [@ASTROSLAMENT](https://github.com/ASTROSLAMENT) and [@i-kittytrap](https://github.com/i-kittytrap) ) - Nominated by [@ASTROSLAMENT](https://github.com/ASTROSLAMENT) !
