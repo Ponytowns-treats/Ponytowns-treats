@@ -9,7 +9,11 @@
 
 <br><p align="center"><img width="722"  src="https://github.com/user-attachments/assets/c86884e4-ab3d-4ea3-927a-157b454c2667" />
  # PTS CHARS !
+[@sanguinesilence](https://github.com/sanguinesilence) is Ponytowns Blot from Dandys world!
+
+[@MrNovalite](https://github.com/MrNovalite) is Ponytowns Astro Novalite from Dandys world!
 <br><p align="center"><img width="722" src="https://github.com/user-attachments/assets/1115d536-1bdf-4a2a-aabe-b8b03cfd2135" />
  # PTS SHIPS !
 <br><p align="center"><img width="722" src="https://github.com/user-attachments/assets/c32590cb-ecc3-4837-95d0-3024ff48ae2c" />
  # PTS PLATONIC DUOS/TRIOS OR FRIENDGROUPS!
+ THE SDWH GROUP - Nominated by [@MrNovalite](https://github.com/MrNovalite)
