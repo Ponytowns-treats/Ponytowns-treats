@@ -1,1 +1,12 @@
-wip
+<br><p align="center">  WELCOME TO PONYTOWNS TREATS ! A sweets based Pt awards acc!
+<br><p align="center"> This acc will have three categories, which will be explained below !
+<br><p align="center"> #1 PTS (insert character) from ( insert fandom) ! Doubles are not encouraged, helps keep track easier!!
+<br><p align="center"> PTS (insert ship) from (insert fandom) belongs to.. (user 1) + (user 2) ! These are for our sweet couples!
+<br><p align="center"> PTS PLATONIC ( insert duo/trio etc here) from (insert fandom) belongs to (user 1) , (user 2) + (user 3) ! These are for duos and trios, if you want to include your friendgroup, please give it a name !
+<br><p align="center"> ANY FURTHER REQUESTS FOR CATEGORIES MAY BE ADDED , BUT AS OF RIGHT NOW, THERE IS NOTHING CONFIRMED!!
+<br><p align="center"><img width="722"  src="https://github.com/user-attachments/assets/c86884e4-ab3d-4ea3-927a-157b454c2667" />
+<br><p align="center">  PTS CHARS !
+<br><p align="center"><img width="722" src="https://github.com/user-attachments/assets/1115d536-1bdf-4a2a-aabe-b8b03cfd2135" />
+<br><p align="center"> PTS SHIPS !
+<br><p align="center"><img width="722" src="https://github.com/user-attachments/assets/c32590cb-ecc3-4837-95d0-3024ff48ae2c" />
+<br><p align="center"> PTS PLATONIC DUOS/TRIOS OR FRIENDGROUPS!
