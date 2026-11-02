@@ -47,10 +47,16 @@
 
 [@devanreedirl](https://github.com/devanreedirl) is Ponytowns Devan Reed from Dandys world !
 
+[@blotsgutz](https://github.com/blotsgutz) is Ponytowns Flins from Genshin !
 
+[@KaitoFoxian](https://github.com/KaitoFoxian) is Ponytowns Rudie from dandys world!
+
+[@Aminafklol](https://github.com/Aminafklol) is Ponytowns Dave  Strider from Homestuck!
 <br><p align="center"><img width="722" src="https://github.com/user-attachments/assets/1115d536-1bdf-4a2a-aabe-b8b03cfd2135" />
  # PTS SHIPS !
 Ponytowns Mooncookie / Decorativedreams from dandys world belongs to [@sp4ceb3rry](https://github.com/sp4ceb3rry) + [@sw33tsug4rcookie](https://github.com/sw33tsug4rcookie) !
+
+Ponytowns NewMoon from Dandys world belongs to [@ASTROSLAMENT](https://github.com/ASTROSLAMENT) + [@sanguinesilence](https://github.com/sanguinesilence)
 <br><p align="center"><img width="722" src="https://github.com/user-attachments/assets/c32590cb-ecc3-4837-95d0-3024ff48ae2c" />
  # PTS PLATONIC DUOS/TRIOS OR FRIENDGROUPS!
  THE SDWH GROUP - Nominated by [@MrNovalite](https://github.com/MrNovalite) !
@@ -60,3 +66,5 @@ Ponytowns Mooncookie / Decorativedreams from dandys world belongs to [@sp4ceb3rr
  Ponytowns Circus trio!( [@sanguinesilence](https://github.com/sanguinesilence) , [@ASTROSLAMENT](https://github.com/ASTROSLAMENT) and [@i-kittytrap](https://github.com/i-kittytrap) ) - Nominated by [@ASTROSLAMENT](https://github.com/ASTROSLAMENT) !
 
 " The cold ones " ( [@benreyfreeman](https://github.com/benreyfreeman) + [@cobblebob](https://github.com/cobblebob) ) - Nominated by [@cobblebob](https://github.com/cobblebob)
+
+" The Pumpkincookie duo " ( [@dicedrevival](https://github.com/dicedrevival) + [@seuteringjellykuki](https://github.com/seuteringjellykuki) ) - Nominated by [@dicedrevival](https://github.com/dicedrevival) !
