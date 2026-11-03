@@ -52,6 +52,8 @@
 [@KaitoFoxian](https://github.com/KaitoFoxian) is Ponytowns Rudie from dandys world!
 
 [@Aminafklol](https://github.com/Aminafklol) is Ponytowns Dave  Strider from Homestuck!
+
+[@TheGlitchedSystem](https://github.com/theglitchedsystem) is Ponytowns  Blaze the Cat from STH !
 <br><p align="center"><img width="722" src="https://github.com/user-attachments/assets/1115d536-1bdf-4a2a-aabe-b8b03cfd2135" />
  # PTS SHIPS !
 Ponytowns Mooncookie / Decorativedreams from dandys world belongs to [@sp4ceb3rry](https://github.com/sp4ceb3rry) + [@sw33tsug4rcookie](https://github.com/sw33tsug4rcookie) !
