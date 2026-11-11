@@ -53,8 +53,6 @@
 
 [@Aminafklol](https://github.com/Aminafklol) is Ponytowns Dave  Strider from Homestuck!
 
-[@TheGlitchedSystem](https://github.com/theglitchedsystem) is Ponytowns  Blaze the Cat from STH !
-
 [@CosmoThePastryy](https://github.com/CosmoThePastryy) is Ponytowns Cosmo from Dandys World !
 
 [@Kurokaori](https://github.com/Kurokaori) is Ponytowns Yatta from Dandys world !
